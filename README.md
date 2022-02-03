@@ -3,3 +3,4 @@ C'est l'histoire d'un mec qui rentre dans un bar. Après avoir ouvert brusqueme
  Les clients commencèrent à lui lancer des tomates pourries, des bouteille de bières et des mégots de cigarettes. Il tombe mort à cause d'un éclat de verre dans l'oeil qui transperça le cerveau, et se changea en Zombie, car il avait été mordu juste avant....
 Et puis finalement, il se dit que boire quelques bières pour se détendre ce n'est pas si malquitte à finir avec une gueule de bois le lendemain.
 Il décide donc de se commander quelques bières et de les boire jusqu'à ce que tous les clients aient quitté le bar. Entre chaque verre, il s'amuse à jouer aux fléchettes.
+un rat géant venu tout droit des lymbes. Là où il ne fait jamais chaud, là où la lumière ne pénètre pas
